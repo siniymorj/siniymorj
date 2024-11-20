@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with my project
 - 💬 Ask me about anything
 - 📫 How to reach me: tg @ishakus
-- 😄 Pronouns: chainik/chainiki
-- ⚡ Fun fact: ya ishak
+- 😄 Pronouns: he/they
+- ⚡ Fun fact: Sergey ishak
 
